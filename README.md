@@ -1,0 +1,5 @@
+![Screenshot 2024-04-04 162255](https://github.com/asyl0/final_project/assets/155817793/aa996f33-6e34-499f-b1d4-3a6fd9994d40)
+![Screenshot 2024-04-04 162319](https://github.com/asyl0/final_project/assets/155817793/e3c7572c-a026-46e2-a20a-994f7fbb4ae1)
+![Screenshot 2024-04-04 162414](https://github.com/asyl0/final_project/assets/155817793/0e751516-dfca-4198-8329-39b837779e13)
+![Screenshot 2024-04-04 162452](https://github.com/asyl0/final_project/assets/155817793/cb0fc1cb-9a1f-4ec6-870a-281121e60cba)
+![Screenshot 2024-04-04 162517](https://github.com/asyl0/final_project/assets/155817793/5819da2e-9dc4-4658-ae81-424b53b226e2)
